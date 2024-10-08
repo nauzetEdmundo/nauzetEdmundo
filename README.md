@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nauzetEdmundo
 - 👀 I’m interested in universe, other world, history
-- 🌱 I’m currently learning to write a novel 
+- 🌱 I’m currently learning to 
 - 💞️ I’m looking to collaborate on Cruz Roja
 - 📫 How to reach me call me
 - 😄 Pronouns: 
